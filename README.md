@@ -1,3 +1,5 @@
+![gta6-meme-reddit-01](assets/preview.png)
+
 # 13 Years of "Coming Soon" — a make.fun meme for Reddit
 
 [![make.fun · gta6-meme-reddit-01](https://make.fun/badge/gta6-meme-reddit-01.svg)](https://make.fun/bounty/gta6-meme-reddit-01?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-reddit-01)
